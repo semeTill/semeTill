@@ -10,4 +10,6 @@ I know im gonna sound desperate for this, but PLEASE INTERACT WITH ME. PLEEEASE 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31iq7xeth4zgrwiabkvp7zwkluvu&cover_image=true&theme=spotify-embed&show_offline=false&background_color=2e1d4d&interchange=false&profanity=false&bar_color=d1c2ff&bar_color_cover=false&mode=light)](https://github.com/kittinan/spotify-github-profile)
 i dont listen to spotify often but ill link my last fm later LMAO sometimes i use my downloads for music. maybe i should show my downloaded music. YES i love showing off my taste in music
 
+[last.fm](https://www.last.fm/user/GENSOKYOFORCE)
+
 <img width="935" height="147" alt="1000000811" src="https://github.com/user-attachments/assets/5c578ffc-cf29-402c-bb0a-050bc5743dee" />
